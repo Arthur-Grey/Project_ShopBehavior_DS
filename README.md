@@ -25,4 +25,5 @@
 
 **После просмотра работы наведитесь сюда ↓↓↓**
 
-![](https://pngtree.com/so/cute-cat)
+
+<img src="https://github.com/user-attachments/assets/e604e9e6-bef9-422c-abfc-21f7d8c558e5" title="Поставьте 20 я старался" />
