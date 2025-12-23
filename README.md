@@ -20,3 +20,9 @@
 - Google Colab
 
 **Ссылка на даталенс** --> [Yandex](https://datalens.ru/2n95o10fh1xsm) 
+
+---
+
+**После просмотра работы наведитесь сюда ↓↓↓**
+
+![](https://pngtree.com/so/cute-cat)
